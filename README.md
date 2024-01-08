@@ -25,5 +25,5 @@ Visualization Tools: Tableau, PowerBI, Excel
 
 📫 How to reach me:
 
-Email: ketki385@gmail.com
+Email: nandsamiksha@gmail.com
 
